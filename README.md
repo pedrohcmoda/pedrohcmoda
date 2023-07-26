@@ -1,4 +1,3 @@
-![image](https://github.com/pedrohcmoda/pedrohcmoda/assets/100807308/24da052f-b309-4ac5-824a-ba836ef6c924)
 ### Ola 👋
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/pmodaa_/)
